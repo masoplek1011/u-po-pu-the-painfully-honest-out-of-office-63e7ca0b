@@ -8,11 +8,11 @@ Entry for [The Painfully Honest Out-of-Office](https://make.fun/bounty/u-po-pu-t
 
 ## The reply
 
-> I'm away this week catching up on the work I kept postponing while saying yes to everyone, so this break is really my to-do list wearing sunglasses.
+> I'm away this week catching up on work I kept postponing while overcommitting, so this break is really my to-do list wearing sunglasses.
 
-**148 characters** — one sentence.
+**136 characters** — one sentence.
 
-The honest admission: the sender said yes to everything, built a mountain of postponed work, and is spending the break catching up on it instead of resting. Warm and self-deprecating rather than bitter, so it stays manager-safe — and it lands on a quotable image at the end.
+The honest admission: the sender kept overcommitting, built a mountain of postponed work, and is spending the break catching up on it instead of resting. Warm and self-deprecating rather than bitter, so it stays manager-safe — and it lands on a quotable image at the end.
 
 ## How it works
 
